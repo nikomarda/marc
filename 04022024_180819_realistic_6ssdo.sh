@@ -1,0 +1,1 @@
+False Bay, on the southern tip of Africa and close to Cape Town, South Africa, is a breeding ground for great white sharks, which feed off the thousands of seals in the bay. However, it is the only area in the known world in which these sharks are known to breach - they attack the seals by coming up vertically, often leaping clear of the water with their prey in their mouths
